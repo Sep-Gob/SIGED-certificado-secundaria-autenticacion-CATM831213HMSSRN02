@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CATM831213HMSSRN02
+CATM831213HMSSRN02
